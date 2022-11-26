@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @pietrolabix
 - 👀 I’m interested in physics and medicine
-- 🌱 I’m currently learning those abovementioned.
+- 🌱 I’m currently learning abovementioned ones.
 - 💞️ I’m looking to collaborate on anything special.
 - 📫 How to reach me? On FUW or WUM (Warsaw).
 
